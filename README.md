@@ -36,4 +36,10 @@
 
  ### Localização: Rua João Celso nº15
 
-### Promoção: Na compra de 3 pulseiras de barbante, você ganha 5% 
+### Promoção: Na compra de 3 pulseiras de barbante, você ganha 5% de desconto na compra das pulseiras de cetim.
+
+### Na compra de 2 kits de pulseiras, você ganha 10% de desconto.
+
+### Aceitas cartões de créditos da Elo e da Visa.
+
+### Aceitamos pix.
