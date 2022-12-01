@@ -34,7 +34,8 @@
 
 ![Image](https://user-images.githubusercontent.com/113556932/198360784-805d8d12-1a3d-41c3-9534-2706e665c155.png)
 
-### Nosso WhatsApp- +55 41 99388-5555
+### ![image](https://user-images.githubusercontent.com/113556932/205135835-23a6e9f9-f299-46bb-911c-01fc10575dab.png)
+ Nosso WhatsApp- +55 41 99388-5555
 
  ### Localização: Rua João Celso nº15
 
@@ -48,6 +49,7 @@
 
 ### Nosso frete é grátis, e entregamos para todo o Brasil.
 
-## Aceitamos pix por QR CODE.
+## Aceitamos pix por QR Code.
 
-![image](https://user-images.githubusercontent.com/113556932/205134742-11ee1da0-4408-4bc3-85f6-cf6c5192081b.png)
+![image](https://user-images.githubusercontent.com/113556932/205135065-9c31d783-20a9-4ef2-a851-65a9e0e3800f.png)
+
