@@ -34,7 +34,7 @@
 
 ![Image](https://user-images.githubusercontent.com/113556932/198360784-805d8d12-1a3d-41c3-9534-2706e665c155.png)
 
-### Nosso WhatsApp
+### Nosso WhatsApp- +55 41 99388-5555
 
  ### Localização: Rua João Celso nº15
 
