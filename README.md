@@ -13,6 +13,8 @@
 ### VALORES:R$ 29,90 cetim- R$ 19,90 barbante
 
  ### Pode ser encontrado em nosso site- www.sweet.com.br
+ 
+![image](https://user-images.githubusercontent.com/113556932/205136481-f7534437-25dc-487f-bb15-3cdf599f53e8.png)
 
 ### Facebook- pulseiras sweet
 
@@ -24,6 +26,8 @@
 
 ![Image](https://user-images.githubusercontent.com/113556932/198359536-7ad1a26c-835c-42fe-b46d-14921a2faeb8.png)
 
+![image](https://user-images.githubusercontent.com/113556932/205136176-6162535f-8d73-4484-bed1-ef742f2cef7c.png)
+
 ### Instagram- Sweet-Pulseiras
 
 ### R$29,90.
@@ -34,8 +38,9 @@
 
 ![Image](https://user-images.githubusercontent.com/113556932/198360784-805d8d12-1a3d-41c3-9534-2706e665c155.png)
 
-### ![image](https://user-images.githubusercontent.com/113556932/205135835-23a6e9f9-f299-46bb-911c-01fc10575dab.png)
- Nosso WhatsApp- +55 41 99388-5555
+ ![image](https://user-images.githubusercontent.com/113556932/205135835-23a6e9f9-f299-46bb-911c-01fc10575dab.png)
+
+### Nosso WhatsApp- +55 41 99388-5555
 
  ### Localização: Rua João Celso nº15
 
