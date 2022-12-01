@@ -46,6 +46,8 @@
 
 ### Aceitas cartões de créditos da Ourocard e da Bradesco.
 
-### Aceitamos pix.
-
 ### Nosso frete é grátis, e entregamos para todo o Brasil.
+
+## Aceitamos pix por QR CODE.
+
+![image](https://user-images.githubusercontent.com/113556932/205134742-11ee1da0-4408-4bc3-85f6-cf6c5192081b.png)
