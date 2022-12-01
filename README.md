@@ -34,12 +34,16 @@
 
 ![Image](https://user-images.githubusercontent.com/113556932/198360784-805d8d12-1a3d-41c3-9534-2706e665c155.png)
 
+### Nosso WhatsApp
+
  ### Localização: Rua João Celso nº15
 
 ### Promoção: Na compra de 3 pulseiras de barbante, você ganha 5% de desconto na compra das pulseiras de cetim.
 
 ### Na compra de 2 kits de pulseiras, você ganha 10% de desconto.
 
-### Aceitas cartões de créditos da Elo e da Visa.
+### Aceitas cartões de créditos da Ourocard e da Bradesco.
 
 ### Aceitamos pix.
+
+### Nosso frete é grátis, e entregamos para todo o Brasil.
