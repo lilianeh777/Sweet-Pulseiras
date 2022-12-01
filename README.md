@@ -50,6 +50,8 @@
 
 ### Na compra de 2 kits de pulseiras, você ganha 10% de desconto.
 
+### Promoção válida até dia 23/12/2022
+
 ### Aceitas cartões de créditos da Ourocard e da Bradesco.
 
 ### Nosso frete é grátis, e entregamos para todo o Brasil.
