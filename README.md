@@ -40,7 +40,9 @@
 
 ### Promoção: Na compra de 3 pulseiras de barbante, você ganha 5% de desconto na compra das pulseiras de cetim.
 
-### SUPER PROMOÇÃO!! Na compra de 2 kits de pulseiras, você ganha 10% de desconto.
+![image](https://user-images.githubusercontent.com/113556932/205134280-72e89d97-ec64-4fe0-9f9b-b78ae96cd7e3.png)
+
+### Na compra de 2 kits de pulseiras, você ganha 10% de desconto.
 
 ### Aceitas cartões de créditos da Ourocard e da Bradesco.
 
